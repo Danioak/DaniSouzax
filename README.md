@@ -4,4 +4,4 @@
 - 📚 Estudante de Desenvolvimento de Sistemas
 - 🔭 Estagiária de Análise e Desenvolvimento no Grupo Pardini
 - 👩‍👦 Mãe do Ricardo
-- 🧘‍♀️ Hábitos saudáveis 
+- 🧘‍♀️ Hábitos  Saudáveis
